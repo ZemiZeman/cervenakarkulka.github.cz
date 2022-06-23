@@ -1,0 +1,1 @@
+# cervenakarkulka.github.cz
